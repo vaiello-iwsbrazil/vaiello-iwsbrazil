@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vaiello-iwsbrazil, interact architect on DWS Brazil
+- 👀 I’m interested in cats, graphic novels and memes
+- 🌱 I’m currently learning how to manage a team
+- 💞️ I’m looking to collaborate on portuguese bad words
+- 📫 How to reach me: victoria.aiello-ext@dentsu.com | slack or teams
